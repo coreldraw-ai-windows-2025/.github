@@ -60,7 +60,7 @@ Elevate your design vision with **CorelDRAW Windows 2025**! This Windows-native 
 ### 🖼 Preview
 
 **CorelDRAW Interface**  
-![CorelDRAW UI](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQJTIcU6pHn3uGvGI350d6bXhdMd27KNPGkmw&s)  
+![CorelDRAW UI](https://gotrialpro.com/wp-content/uploads/edd/2024/08/Coreldraw-free-trial.png)  
 *Main workspace showcasing the CorelDRAW interface on Windows with a vector project in progress.*
 
 **Vector Illustration Tools**  
